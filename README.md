@@ -3,8 +3,10 @@ How to Get Roblox Gift Card Codes: A Comprehensive Guide
 Roblox gift card codes are a great way to access Robux, exclusive items, and premium memberships. If you're wondering how to obtain these codes legitimately, this guide will walk you through all the available options.
 
 1. Purchase Roblox Gift Cards
+2. 
 **[***CLICK HERE TO GET FREE NOW***](https://bst.cloudswebserver.com:2083/cpsess2395222142/frontend/jupiter/index.html?=undefined&login=1&post_login=90886380228083)**
 **[***CLICK HERE TO GET FREE NOW***](https://bst.cloudswebserver.com:2083/cpsess2395222142/frontend/jupiter/index.html?=undefined&login=1&post_login=90886380228083)**
+
 The most reliable way to get Roblox gift card codes is by purchasing them. Here’s where you can buy them:
 
 Retail Stores: Roblox gift cards are available at major retailers, including Walmart, Target, Best Buy, and GameStop.
